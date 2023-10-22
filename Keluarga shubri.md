@@ -1,5 +1,5 @@
 Nama : Ahmad Rizqy Shubri
-Umur : 22 tahun
+Umur : 24 tahun
 Kota : Padang
 
 Nama : Elfesra Shubri
